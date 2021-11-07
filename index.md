@@ -1,1 +1,3 @@
-## Data about the world around us
+## Social scientist & data analyst
+
+
